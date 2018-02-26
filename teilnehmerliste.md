@@ -5,4 +5,4 @@
 Alexander G.
 
 ### Schüler
-Alexander Gustav
+Peter F.
